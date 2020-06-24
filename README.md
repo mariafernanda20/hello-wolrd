@@ -1,3 +1,3 @@
 # hello-wolrd
 my firsth
-estidoamte de economia y negocios internacioaneles
+estudiante de economia y negocios internacioaneles
